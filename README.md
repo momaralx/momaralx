@@ -1,0 +1,5 @@
+- 👋 Hi, I’m omar, this is my ALX account
+- 👀 I’m interested in living
+- 🌱 I’m currently learning how to live
+- 💞️ I’m looking to collaborate on ways to live
+- 📫 How to reach me unknown989@proton.me
